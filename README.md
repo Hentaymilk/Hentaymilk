@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Hentaymilk
+- 🪐 I want to know everything about hacking
